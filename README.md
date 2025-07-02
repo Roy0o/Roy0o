@@ -1,2 +1,3 @@
-![![examination-min](https://github.com/user-attachments/assets/8b30e8d2-e8cb-46ce-9e02-c3d0c4f5a61b)
+![![![фую и кочи](https://github.com/user-attachments/assets/fd9be1e9-e89e-4bac-a211-f76b37aa4093)
+
 
