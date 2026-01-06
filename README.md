@@ -17,7 +17,7 @@ hi, call me Royo
 
 birthday: 29 january
 
-fandoms: project moon, hello charlotte, omori, tshd, yttd, marutoku games ( zeno, shtdn, no salvation, itigokuruiza ), evangelion, danganronpa, land of the lustrous, tbhk, saihate station, twf, alien stage, bsd, death note, oneshot and so on
+fandoms: project moon, hello charlotte, omori, tshd, yttd, marutoku games ( zeno, shtdn, no salvation, itigokuruiza ), milgram, evangelion, danganronpa, land of the lustrous, tbhk, saihate station, twf, alien stage, bsd, death note, oneshot and so on
 
 feel free to interact ^^
 
