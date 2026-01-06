@@ -13,14 +13,18 @@
 
 
 
-hi, call me Royo. 
-my birthday 29th january
+hi, call me Royo
 
-fandoms: project moon, hello charlotte, omori, tshd, yttd, marutoku games ( zeno, shtdn, no salvation, itigokuruiza ), evangelion, danganronpa, land of the lustrous, saihate station, twf, alien stage, bsd, death note, oneshot and so on
+birthday: 29 january
+
+fandoms: project moon, hello charlotte, omori, tshd, yttd, marutoku games ( zeno, shtdn, no salvation, itigokuruiza ), evangelion, danganronpa, land of the lustrous, tbhk, saihate station, twf, alien stage, bsd, death note, oneshot and so on
 
 feel free to interact ^^
 
-![tumblr_3b0be145d7a749fed2ed04555cc651c4_30786548_100](https://github.com/user-attachments/assets/771da081-ff4e-4f75-bace-c11257df6af0) ![tumblr_1d0dd2fb249582516bbc657cbc2a293e_42ab83d2_100](https://github.com/user-attachments/assets/fb70b373-c00a-4c8f-9046-8b85465651ea) <img width="110" height="61" alt="tumblr_a3f54803dd8770cf6d06d2de8e05b3f2_5a4a0904_250" src="https://github.com/user-attachments/assets/2b4414c5-8a0d-4848-867c-ac1d97c68c83" /> ![tumblr_55785b6a4d2d2ffcfb5b8f2c04e18a9a_e47ccbfa_100](https://github.com/user-attachments/assets/1571dd88-2c56-41ff-b033-01e78d227982) ![tumblr_d102cc236dbe48ed8b076aa59f1fc62b_56b41e13_100](https://github.com/user-attachments/assets/8bdea5b8-69d2-4fe2-9ad4-6839af410879)  ![tumblr_a6f1ac5fce299cc810afd632f43a45dd_0e826ae2_100](https://github.com/user-attachments/assets/283fb5ea-1c73-4062-a8d5-dc5f655992bb) 
+![tumblr_3b0be145d7a749fed2ed04555cc651c4_30786548_100](https://github.com/user-attachments/assets/771da081-ff4e-4f75-bace-c11257df6af0) ![tumblr_1d0dd2fb249582516bbc657cbc2a293e_42ab83d2_100](https://github.com/user-attachments/assets/fb70b373-c00a-4c8f-9046-8b85465651ea) <img width="110" height="61" alt="tumblr_a3f54803dd8770cf6d06d2de8e05b3f2_5a4a0904_250" src="https://github.com/user-attachments/assets/2b4414c5-8a0d-4848-867c-ac1d97c68c83" /> ![tumblr_55785b6a4d2d2ffcfb5b8f2c04e18a9a_e47ccbfa_100](https://github.com/user-attachments/assets/1571dd88-2c56-41ff-b033-01e78d227982) ![tumblr_d102cc236dbe48ed8b076aa59f1fc62b_56b41e13_100](https://github.com/user-attachments/assets/8bdea5b8-69d2-4fe2-9ad4-6839af410879)  ![tumblr_a6f1ac5fce299cc810afd632f43a45dd_0e826ae2_100](https://github.com/user-attachments/assets/283fb5ea-1c73-4062-a8d5-dc5f655992bb) <img width="99" height="56" alt="tumblr_8b9f236f260bf423f9d6db5522da87e9_d70cf9f2_100" src="https://github.com/user-attachments/assets/5db48b4d-1baf-40a9-9d03-f5948fdfaeb6" /> <img width="99" height="56" alt="tumblr_808f423e919fedcf9e11d1a24c370962_24a3a354_100" src="https://github.com/user-attachments/assets/4e4a2537-6dfe-4c12-93a1-20cef6b4eba6" /> <img width="99" height="56" alt="tumblr_05ac1323cb1191f72b7e0435800f9f58_69e70155_100" src="https://github.com/user-attachments/assets/9a370c5c-bb66-46c1-adaa-54b9ed914ff9" />
+
+
+
 
 
 
