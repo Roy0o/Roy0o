@@ -4,3 +4,5 @@ hi, call me Royo.
 my birthday 29th january
 
 fandoms: project moon, hello charlotte, omori, tshd, yttd, marutoku games ( zeno, shtdn, no salvation, itigokuruiza ), evangelion, land of the lustrous, saihate station, twf, oneshot and so on
+
+
