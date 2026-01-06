@@ -1,4 +1,5 @@
-![tshd](https://github.com/user-attachments/assets/d4facb66-3d20-4528-a360-0df2591776c3)
+![tshd](https://github.com/user-attachments/assets/639c085e-dd0b-485d-8157-a60fdb97e4ac)
+
 
 hi, call me Royo. 
 my birthday 29th january
