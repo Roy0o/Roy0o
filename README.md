@@ -30,8 +30,8 @@ feel free to interact ^^
 
 
 
+<img width="600" height="600" alt="tumblr_eedb7f9a90ee3d12b3f364e5cc33edd9_d649448b_640" src="https://github.com/user-attachments/assets/dd830fbf-1077-42d7-88cf-51acb57d4389" />
 
-![tumblr_7191ed8f763bc92778cbc68e4fedea19_71571178_75](https://github.com/user-attachments/assets/608f1d30-eac1-4612-a4c8-427bd5e97ea7)
 
 
 
