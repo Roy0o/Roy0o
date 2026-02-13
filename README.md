@@ -14,6 +14,8 @@
 
 hi, call me Royo
 
+i'm genderfluid and aroace
+
 birthday: 29 january
 
 fandoms: project moon, kasurich, hello charlotte, omori, tshd, yttd, 8:11, witch's heart, marutoku games ( zeno, shtdn, no salvation, itigokuruiza ), milgram, evangelion, danganronpa, land of the lustrous, tbhk, saihate station, twf, alien stage, bsd, death note, oneshot and so on
