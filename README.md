@@ -14,7 +14,7 @@
 
 hi, call me Royo
 
-i'm genderfluid and aroace
+i'm genderfluid and asexual
 
 birthday: 29 january
 
